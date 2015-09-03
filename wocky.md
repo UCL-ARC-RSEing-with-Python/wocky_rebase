@@ -1,2 +1,2 @@
-It was clear and cold,
-and the slimy monsters
+'Twas brilig,
+and the slithy toves
